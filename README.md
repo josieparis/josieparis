@@ -5,4 +5,4 @@ I'm interested in using analytical approaches in ecological genomics to integrat
 
 
 #### Contact details:
-j.r.paris@exeter.ac.uk      parisjosephine@gmail.com
+j.r.paris@exeter.ac.uk    OR  parisjosephine@gmail.com
