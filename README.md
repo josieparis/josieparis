@@ -5,4 +5,4 @@ I'm interested in using analytical approaches in ecological genomics to integrat
 
 
 #### Contact details:
-parisjosephine@gmail.com
+parisjosephine(AAAAA)gmail.com (replace the poly(A) tail with @ )
